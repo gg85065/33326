@@ -25,4 +25,4 @@
 总的来说，日本AV免费影片为观众提供了一个既经济又便捷的观看选择。通过选择一个可靠的正规平台，你不仅可以享受最新、高清的影片内容，还能在确保安全和隐私的前提下，获得无与伦比的观影体验。无论是经典影片，还是最热的日本AV，免费资源都能满足你的需求，让你在家轻松畅享精彩内容。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/gg85065/33326 ）</span>
